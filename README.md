@@ -44,6 +44,6 @@ Contact Me
 
 📧 Email: salmanfaris9911@gmail.com
 
-🔗 LinkedIn: linkedin.com/in/salmanfaris9911
+🔗 LinkedIn: [https://linkedin.com/in/salmanfaris9911](https://www.linkedin.com/in/salmanfaris9911/)
 
 Let’s connect and explore exciting opportunities together! 🌟
